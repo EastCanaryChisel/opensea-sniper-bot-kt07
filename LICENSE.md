@@ -1,4 +1,4 @@
-# 
+# NFT-optimized NFT Mint Bot for opensea sniper bot | bundle-transactions & wash-trading-execution offers the most advanced opensea sniper bot, with bundle-transactions and
 
 
 
